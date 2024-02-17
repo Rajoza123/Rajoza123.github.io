@@ -1,1 +1,1 @@
-[🔗 Link for page](https://github.com/Rajoza123/Rajoza.github.io/tree/main/module2-solution)
+[🔗 Link for page](https://Rajoza.github.io/module2-solution)
