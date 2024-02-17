@@ -1,1 +1,1 @@
-[🔗 Link for page](https://krinalbeladiya.github.io/module5-solution/)
+[🔗 Link for page](https://Rajoza123.github.io/module5-solution/)
